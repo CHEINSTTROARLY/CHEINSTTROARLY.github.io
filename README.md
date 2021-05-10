@@ -1,5 +1,5 @@
 ## Welcome
-To the home of -1
+It's Here. -1
 
 1. [<kbd>Read the CHEINSTTROARLY</kbd>](/TheCHEINSTTROARLY/Contents)
 2. [<kbd>Read some comics?</kbd>](/ComicSketch/Contents)
