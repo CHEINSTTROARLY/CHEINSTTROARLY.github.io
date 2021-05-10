@@ -9,3 +9,5 @@ Will add today, 5.10.20201:
 - Copy/Paste the CHEINSTTROARLY
 - Screenshot some comics
 - Screenshots of the platformer game!
+
+(Find all 91 remixes of people wanting to be in the -1 comic :0 oof)
