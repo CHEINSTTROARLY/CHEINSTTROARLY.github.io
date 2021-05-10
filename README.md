@@ -6,8 +6,7 @@ To the home of -1
 3. [<kbd>-1-1-1-1</kbd>](https://github.com)
 
 Will add today, 5.10.20201:  
-(Will do check list after I do my work first for today) (Percent of work complete: 33%)
-- Copy/Paste the CHEINSTTROARLY
+- Copy/Paste the CHEINSTTROARLY (currently working on this right now)
 - Screenshot some comics
 - Screenshots of the platformer game!
 
