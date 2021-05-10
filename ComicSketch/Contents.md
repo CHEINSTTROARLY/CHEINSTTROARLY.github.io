@@ -1,7 +1,7 @@
 
 # Comic Sketch
 
-Here's some comics I drew the other day. They're ok.
+Here's 10 comics I drew the other day. They're ok.
 
 (Here's some [comics](https://awesome-e.github.io/hs-tools/explore-channel/user.html?u=5o8dwj-1kwo_7k&channel=Published) created by STvH) (I will be adding screenshots of these as well so soon!)
 
