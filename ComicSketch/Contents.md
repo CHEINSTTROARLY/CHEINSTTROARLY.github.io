@@ -1,5 +1,7 @@
 
-# Table of Contents
+# Comic Sketch
+
+Here's some comics I drew the other day. They're ok.
 
 ![Chapter 1](\ComicSketch\Chapter1.PNG)
 
