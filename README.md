@@ -7,7 +7,7 @@ It's Here. -1
 
 ---
 
-Added 5.10.2201:  
+Added 5.10.2021:
 - Copy/Paste the CHEINSTTROARLY (Completed)
 - Screenshot some comics (Completed)
 
