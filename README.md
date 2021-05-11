@@ -7,9 +7,10 @@ It's Here. -1
 
 ---
 
-Will add today, 5.10.20201:  
+Added 5.10.2201:  
 - Copy/Paste the CHEINSTTROARLY (Completed)
 - Screenshot some comics (Completed)
-- Screenshots of the platformer game!
 
-Also: (Find all 91 remixes of people wanting to be in the -1 comic :0 oof)
+Will add 5.11.2021
+- Screenshots of the platformer game!
+- Also: (Find all 92 remixes of people wanting to be in the -1 comic :0 oof)
